@@ -1,1 +1,1 @@
-bitkoin is gonna worth 10 k soon..
+BitKoin is gonna worth 10 k soon..
