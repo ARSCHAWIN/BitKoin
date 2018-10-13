@@ -1,1 +1,1 @@
-BitKoin Win is gonna worth 10 k soon..
+WIN is gonna worth 10 k soon..
