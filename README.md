@@ -1,1 +1,1 @@
-BitKoinWin is gonna worth 10 k soon..
+BitKoin Win is gonna worth 10 k soon..
