@@ -1,1 +1,1 @@
-WIN is gonna worth 10 k soon..
+CUTKOIN is gonna worth 10 k soon..
